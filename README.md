@@ -4,5 +4,5 @@ untuk demo live bisa dilihat di
 https://booksk3517040.000webhostapp.com/books (available)
 http://k3517040.indoweb.xyz/books (down)
 
-* contributors calvinmikhailouzna hanya minta tolong untuk upload semata
+* contributors calvinmikhailouzna hanya dimintai tolong untuk upload semata
 
